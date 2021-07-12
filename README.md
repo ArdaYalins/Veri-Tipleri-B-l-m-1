@@ -1,0 +1,1 @@
+# Veri-Tipleri-B-l-m-1
